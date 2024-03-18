@@ -36,3 +36,10 @@
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/f8652d28-420d-49c8-b5c9-3aceeab097eb)
 ## 养肝食物
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/8165f039-3e64-4940-99f7-0c7f8cf2240b)
+## 肝病
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/69e6b485-8376-496a-a629-af1c796f0cde)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/e352425a-b9c3-4f99-b46e-f86505322ad5)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/8aab915a-1020-4bab-854d-0b9a8375f8d4)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/11a39af2-6676-47ec-9aeb-9afadcbf3400)
+## 问答
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/1257c523-d468-42c2-ac90-dd7482b3f77d)
