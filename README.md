@@ -21,6 +21,18 @@
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/d4ef30a1-f33e-4beb-b621-59d259a9681e)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/56a12108-31e3-4374-bfe7-129e4a9e5ce9)
 ## 应酬人
-![image](https://github.com/guozheng07/LifeNew/assets/42236890/3c91b40a-a99e-40be-9ce4-ce5c3e3f2cd0)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/15fced31-3f48-4e09-b5a6-a9b5c4ddd057)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/0f4c037d-2702-4af7-b3f5-d44c2eaba002)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/3c91b40a-a99e-40be-9ce4-ce5c3e3f2cd0)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/97af7048-b3c9-4614-9be3-4153863c7739)
+## 外食一族
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/a3a185a5-6b1e-4b3f-98a8-e7f16c8bfc3b)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/c4e35c48-4af6-45f7-95b9-f86b2d75e3b8)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/3db2e776-32a7-4220-9a7d-bf403756a8f9)
+## 熬夜一族
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/15ea66bf-695c-413d-8ee3-b83320ef7207)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/046739b0-9ed8-4f7f-8efc-7afa355bd2a9)
+## 保健品有用吗
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/f8652d28-420d-49c8-b5c9-3aceeab097eb)
+## 养肝食物
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/8165f039-3e64-4940-99f7-0c7f8cf2240b)
