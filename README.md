@@ -18,3 +18,4 @@
 运动需要超过30分钟
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/c466759d-6e09-463d-9684-e147237b186c)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/d4ef30a1-f33e-4beb-b621-59d259a9681e)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/56a12108-31e3-4374-bfe7-129e4a9e5ce9)
