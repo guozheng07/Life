@@ -42,4 +42,4 @@
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/8aab915a-1020-4bab-854d-0b9a8375f8d4)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/11a39af2-6676-47ec-9aeb-9afadcbf3400)
 ## 问答
-![image](https://github.com/guozheng07/LifeNew/assets/42236890/1257c523-d468-42c2-ac90-dd7482b3f77d)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/fa186dfd-ed9a-483c-9fd3-cb9705769485)
