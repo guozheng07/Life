@@ -40,6 +40,7 @@
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/69e6b485-8376-496a-a629-af1c796f0cde)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/e352425a-b9c3-4f99-b46e-f86505322ad5)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/8aab915a-1020-4bab-854d-0b9a8375f8d4)
+验证是否有肝病最有效的指标是ALT，这个指标升高，则有肝病。
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/11a39af2-6676-47ec-9aeb-9afadcbf3400)
 ## 问答
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/fa186dfd-ed9a-483c-9fd3-cb9705769485)
