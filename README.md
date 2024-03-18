@@ -16,9 +16,11 @@
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/48aa4f60-ee6d-4513-9a5d-5c6942d83c99)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/4dcb88f7-db59-4243-b5df-0d815451e18a)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/ee41aa35-1cac-4e22-b1d4-5f1945875310)
-运动需要超过30分钟
+由上图得出结论，运动需要超过30分钟，才开始消耗脂肪。
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/c466759d-6e09-463d-9684-e147237b186c)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/d4ef30a1-f33e-4beb-b621-59d259a9681e)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/56a12108-31e3-4374-bfe7-129e4a9e5ce9)
 ## 应酬人
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/3c91b40a-a99e-40be-9ce4-ce5c3e3f2cd0)
 ![image](https://github.com/guozheng07/LifeNew/assets/42236890/15fced31-3f48-4e09-b5a6-a9b5c4ddd057)
+![image](https://github.com/guozheng07/LifeNew/assets/42236890/0f4c037d-2702-4af7-b3f5-d44c2eaba002)
